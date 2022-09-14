@@ -1,4 +1,4 @@
-# Hej nazywam się Rmigiusz Pawłowski!
+# Hej nazywam się Remigiusz Pawłowski!
 <b>Jestem największym pechowcem na ziemi</b><br>
 Interesuję się motoryzacją 🚗<br>
 !Mam na sprzedanie opla astre gtc 115km silnik 1.6 rocznik 2007! <b>MEGA OKAZJA</b><br>
